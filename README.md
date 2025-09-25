@@ -8,6 +8,7 @@
 <div align="center"> chance fictkin, nico fanatic, pjo enthusiast </div>
 <div align="center"> i love pjo, south park, evanescence, vocaloid, epic:tm, forsaken, egyptian myths, and termination protocol </div>
 <div align="center"> chronic multishipper </div>
+<div align="center"> i age regress to cope. i dont do it publically nor do i go online while in littlespace. i dont talk about it either, just so you know. </div>
 <br/>
 <br/>
 <div align="center"> dont copy my skins, ask to take inspo </div>
