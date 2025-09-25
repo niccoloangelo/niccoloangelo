@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=niccoloangelo&label=half+bloods&style=plastic)
 <br/>
 <div align="center"> wouldve made this solvaldangelo or valdangelo themed but no art.. / graphic made by me </div>
+<div align="center"> straw: https://niccoloangelo.straw.page </div>
 <br/>
 <br/>
 <div align="center"> <img width="736" height="511" alt="image" src="https://github.com/user-attachments/assets/e1ff3c52-a2bd-47fa-a3bd-b5a7cf2fece6" /> </div>
