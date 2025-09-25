@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=niccoloangelo&label=half+bloods&style=plastic)
 <br/>
 <div align="center"> wouldve made this solvaldangelo or valdangelo themed but no art.. / graphic made by me </div>
 <br/>
