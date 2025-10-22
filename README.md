@@ -18,7 +18,7 @@
 <div align="center"> <img width="736" height="511" alt="image" src="https://github.com/user-attachments/assets/e1ff3c52-a2bd-47fa-a3bd-b5a7cf2fece6" /> </div>
 <br/>
 <div align="center"> frank zhang fictkin, nico fanatic, pjo enthusiast </div>
-<div align="center"> i love pjo, south park, evanescence, vocaloid, epic:tm, forsaken, egyptian myths, walking dead, dexter, and termination protocol </div>
+<div align="center"> i love pjo, south park, evanescence, vocaloid, epic:tm, forsaken, egyptian myths, walking dead, dexter, rdr1/2, hunter x hunter, my little pony, and termination protocol </div>
 <div align="center"> chronic multishipper </div>
 <div align="center"> i age regress to cope. i dont do it publically nor do i go online while in littlespace. i dont talk about it either, just so you know. </div>
 <br/>
